@@ -8,5 +8,4 @@ so if you be careful and I'll try not to be.
 
 i may say weird things accidentally sometimes, if i said anything made u uncomfortable please let me know 
 
-i DON'T have a certain style (yet) so my skins all look kinda different sorry if u didn't regonize me and i mostly put "tired pony" skin
-
+i DON'T have a certain style (yet) so my skins all look kinda different sorry if u didn't regonize me, just put a note of my name 
