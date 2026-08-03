@@ -3,8 +3,7 @@ stuff u might wanna know before u int
 
 I don't like racist jokes, Epstein jokes, adult jokes or anything adult/sexual related humour.
 
-i can be really sensitive like REALLY. 
-so if you be careful and I'll try not to be.
+i can be really sensitive like REALLY so I'm sorry, I'll try not to be and keep that in mind
 
 i may say weird things accidentally sometimes, if i said anything made u uncomfortable please let me know 
 
