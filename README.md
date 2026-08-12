@@ -9,3 +9,5 @@ i may say weird things accidentally sometimes, if i said anything made u uncomfo
 
 i DON'T have a certain style (yet) so my skins all look kinda different sorry if u didn't regonize me, just put a note of my name if we become friends 
 
+and most importantly, i have a bad fat obsession with Connor from Detroit, thank you 
+i also fucking love dachert games comfort streamers 4 ever
